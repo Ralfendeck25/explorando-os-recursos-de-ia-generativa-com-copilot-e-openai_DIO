@@ -1,0 +1,1 @@
+# explorando-os-recursos-de-ia-generativa-com-copilot-e-openai_DIO
